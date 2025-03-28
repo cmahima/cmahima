@@ -52,10 +52,10 @@ I am a Machine Learning Architect with extensive experience in MLOps and LLMOps.
   [mahimachaudhary966@gmail.com](mailto:mahimachaudhary966@gmail.com)
 
 - **LinkedIn:**  
-  [linkedin.com/in/mahima-chaudhary](https://www.linkedin.com/in/mahima-chaudhary)
+  [linkedin.com/in/mahima-chaudhary](https://www.linkedin.com/in/mahima-chaudhary](https://www.linkedin.com/in/mahima-chaudhary-210965123/)
 
 - **GitHub:**  
   [github.com/cmahima](https://github.com/cmahima)
 
 - **Google Scholar:**  
-  [scholar.google.com/mahima](https://scholar.google.com/mahima)
+  [scholar.google.com/mahima](https://scholar.google.com/mahima](https://scholar.google.com/citations?user=Yb29cw8AAAAJ&hl=en)
